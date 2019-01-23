@@ -9,13 +9,13 @@ When you start practicing it, you are considered to be in the path of Dhamma, th
 
 - The point is to **disassociate** ourselves from those sensations, no matter how gross or subtle they feel, or how good or bad ( which are associations already). 
 
-- You learn to **not react** to those sensations and to simply observe it **equanimously** (with the understanding of the law of nature, the **law of impermanence**)
+- You learn to **not react** to those sensations and to simply observe it **equanimously** (with the understanding of the law of nature, the **law of impermanence**).
 
 - Eventually, through consistent practice, you go **deeper into your subconscious mind**, which is said to be connected to our sensations experienced in our bodies. 
 
 - By going deep into your subconscious, you are able to find the root of the problems, the sufferings, the **suppressed emotions** that were never processed correctly, and then you will be able to observe it (with equanimity) and release yourself from it. 
 
-- It is not to enter a religion, though many different religious people practice it
+- It is not to enter a religion, though many different religious people practice it.
 
 - It is not sectarian. In fact, it's **universal**. 
 IE. The technique does not teach you to follow any specific god or belief, it releases you from it.
