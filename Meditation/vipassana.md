@@ -1,6 +1,6 @@
 # Vipassana
 
-Vipassana is a meditation technique that helps purify the mind through accepting reality as it is.
+Vipassana is a meditation technique that helps purify the mind through **accepting reality as it is**.
 
 When you start practicing it, you are considered to be in the **path of Dhamma**, the path of liberation / enlightenment/ purification.
 
