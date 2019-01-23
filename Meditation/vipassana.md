@@ -22,7 +22,7 @@ IE. The technique does not teach you to follow any specific god or belief, it re
 
 - Discovered by the famous Buddha, or more precisely, by **Gautama** the Buddha. Yet, you don't need to be a Buddhist nor a monk or a nun to practice Vipassana and benefit from it.
 
-- The main goal is to help you live in peace and harmony within yourself, unreliable of the exterior, which is out of our own control.
+- The main goal is to help you live in peace and harmony within yourself, independently of the exterior, which is out of our own control.
 
 ## links 
 
