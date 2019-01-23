@@ -2,7 +2,7 @@
 
 Vipassana is a meditation technique that helps purify the mind through accepting reality as it is.
 
-When you start practicing it, you are considered to be in the path of Dhamma, the path of liberation / enlightenment/ purification.
+When you start practicing it, you are considered to be in the **path of Dhamma**, the path of liberation / enlightenment/ purification.
 
 ## Notes 
 - The technique is done by **observing** all the flow of **sensations** that we constantly have throughout our bodies.
@@ -15,7 +15,7 @@ When you start practicing it, you are considered to be in the path of Dhamma, th
 
 - By going deep into your subconscious, you are able to find the root of the problems, the sufferings, the **suppressed emotions** that were never processed correctly, and then you will be able to observe it (with equanimity) and release yourself from it. 
 
-- It is not to enter a religion, though many different religious people practice it.
+- It is not to enter or follow a religion, though many different religious people practice it.
 
 - It is not sectarian. In fact, it's **universal**. 
 IE. The technique does not teach you to follow any specific god or belief, it releases you from it.
